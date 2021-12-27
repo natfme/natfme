@@ -8,4 +8,6 @@
 
 🍔 My favourite food is pizza and my dessert is Tiramisu
 
+🎮 My favourite videogames are Assassins Crees, age of empires, Sacred gold and Kena and Pac-Man
+
 🚀 Love, peace and focus
