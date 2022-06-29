@@ -2,7 +2,7 @@
 
 🤔 My experience is the projects developmented in misionTIC 2022, ConsultorioOnline and EnlazaMiLibro.
 
-💡  In my free time I practice karate, runnig and swimming.
+💡  In my free time I practice karate, running and swimming.
 
 ✨ I love astronomy, coffee and cats
 
